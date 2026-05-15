@@ -1,7 +1,7 @@
 # 3 reasons enterprises use open innovation
 
-**Published:** 2022-09-30
-**Medium:** [https://medium.com/@kyle-t-jones/3-reasons-enterprises-use-open-innovation-f53e443f0c65](https://medium.com/@kyle-t-jones/3-reasons-enterprises-use-open-innovation-f53e443f0c65)
+Published: 2022-09-30
+Medium: [https://medium.com/@kyle-t-jones/3-reasons-enterprises-use-open-innovation-f53e443f0c65](https://medium.com/@kyle-t-jones/3-reasons-enterprises-use-open-innovation-f53e443f0c65)
 
 ## About
 
